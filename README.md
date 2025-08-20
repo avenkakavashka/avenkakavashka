@@ -1,5 +1,6 @@
 ‎ ‎ ‎ ‎ <p align="center" dir="auto"> 
-![he held his breath ‘cause Jōno told him to😫](https://github.com/user-attachments/assets/d330ac92-289d-4f50-95bd-24d0f1449ded)
+<img width="1200" height="449" alt="image" src="https://github.com/user-attachments/assets/07d814da-0274-464d-bcf8-14d013f858db" />
+
 
 ‎ ‎ ‎ ‎ <p align="center" dir="auto"> 
 ‎ ㅤ۪  𝅄ㅤ ꒰    美な  ꒱    ⏤ㅤ    ۪ ୧
