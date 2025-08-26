@@ -1,5 +1,6 @@
 ‎ ‎ ‎ ‎ <p align="center" dir="auto"> 
-![X](https://github.com/user-attachments/assets/8cb5311b-9546-4668-9d81-a53b5976d8fd)
+![ -95](https://github.com/user-attachments/assets/8c8bf0fd-d100-450e-b9e8-957d029f58f9)
+
 
 
 
@@ -36,7 +37,9 @@
 ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵
 
 <p align="center" dir="auto">
-<img width="736" height="464" alt="image" src="https://github.com/user-attachments/assets/f096c517-2a01-4b2f-9369-728e5a3897c3" />
+<img width="1080" height="513" alt="image" src="https://github.com/user-attachments/assets/bb77571a-529a-483d-a74b-ffd9537d2c9b" />
+
+
 
 
 
