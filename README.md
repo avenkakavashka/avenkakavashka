@@ -32,7 +32,7 @@
 𝘺𝘰𝘶'𝘭𝘭 𝘯𝘦𝘷𝘦𝘳 𝘨𝘦𝘵 𝘢𝘸𝘢𝘺,
 
 <p align="center" dir="auto">
-𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘚𝘖𝘜𝘕𝘋,
+𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘚𝘖𝘜𝘕𝘋
 
 
 <p align="center" dir="auto">
