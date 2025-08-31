@@ -1,5 +1,10 @@
 ‎ ‎ ‎ ‎ <p align="center" dir="auto"> 
-![ -95](https://github.com/user-attachments/assets/8c8bf0fd-d100-450e-b9e8-957d029f58f9)
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/0fe3392d-645a-4793-aabc-75d645dd2a72" />
+
+
+
+
+
 
 
 
@@ -37,7 +42,8 @@
 ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵
 
 <p align="center" dir="auto">
-<img width="1080" height="513" alt="image" src="https://github.com/user-attachments/assets/bb77571a-529a-483d-a74b-ffd9537d2c9b" />
+<img width="990" height="278" alt="image" src="https://github.com/user-attachments/assets/2e32fdd1-34ff-4009-a8b1-9c51950613f1" />
+
 
 
 
