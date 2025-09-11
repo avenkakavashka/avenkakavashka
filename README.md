@@ -79,6 +79,12 @@
 <p align="center" dir="auto">
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e107c6a5-74df-4819-9fc0-65022e1e46cf" />
 
+<p align="center" dir="auto">
+︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵
+
+<p align="center" dir="auto">
+im sorry for ruining you.
+
 
 
 
