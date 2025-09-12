@@ -1,11 +1,13 @@
- <p align="center" dir="auto"> 
-<img width="676" height="400" alt="image" src="https://github.com/user-attachments/assets/a9b24bbe-8a17-499e-a567-57942c202d0c" />
 
  <p align="center" dir="auto"> 
  accurate kinlist.
 <p align="center" dir="auto"> 
   <img width="1092" height="1312" alt="ultimatekinlist" src="https://github.com/user-attachments/assets/565a308e-303b-408a-b891-53f628e26a45" />
-enter" dir="auto"> 
+
+
+ <p align="center" dir="auto"> 
+<img width="676" height="400" alt="image" src="https://github.com/user-attachments/assets/a9b24bbe-8a17-499e-a567-57942c202d0c" />
+
  
   
 
