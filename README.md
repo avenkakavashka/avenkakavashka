@@ -2,7 +2,7 @@
  <p align="center" dir="auto"> 
  accurate kinlist.
 <p align="center" dir="auto"> 
-  <img width="1092" height="1312" alt="ultimatekinlist" src="https://github.com/user-attachments/assets/565a308e-303b-408a-b891-53f628e26a45" />
+  <img width="273" height="328" alt="ultimatekinlist" src="https://github.com/user-attachments/assets/565a308e-303b-408a-b891-53f628e26a45" />
 
 
  <p align="center" dir="auto"> 
