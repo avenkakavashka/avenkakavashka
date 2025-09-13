@@ -1,8 +1,4 @@
 
- <p align="center" dir="auto"> 
- accurate kinlist.
-<p align="center" dir="auto"> 
-  <img width="273" height="328" alt="ultimatekinlist" src="https://github.com/user-attachments/assets/565a308e-303b-408a-b891-53f628e26a45" />
 
 
  <p align="center" dir="auto"> 
@@ -32,33 +28,12 @@
  ‎ ‎ ‎ ㅤㅤᶻ 𝘇 𐰁.  ‎ ‎ ‎ rileyㅤ‎ 𐚁ㅤ۪ ㅤ݂ ‎ ‎ ‎ ‎ ‎ 19‎ ‎ ‎ ‎ ‎  ᡣ𐭩   ⋆ ◞
  ‎ ‎ ‎ <p align="center" dir="auto"> 
 𓈒‎ ‎   ‎ ୭ৎ  ‎ ‎ ‎ ‎ any     pronouns⠀ׂㅤ.  ͡꒱
- 
+ ‎ ‎ ‎ <p align="center" dir="auto"> 
+𓈒‎  𝘱𝘰𝘦𝘵 ⏤ㅤ    ۪ ୧
  
  ‎ ‎ ‎ ‎ ‎ 
 <p align="center" dir="auto">
 ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵
-
-<p align="center" dir="auto">
-𝘧𝘰𝘳 𝘵𝘩𝘦 𝘵𝘢𝘪𝘯𝘵𝘦𝘥 𝘴𝘰𝘳𝘳𝘰𝘸,‎
-<p align="center" dir="auto">
-𝘵𝘰𝘥𝘢𝘺 𝘵𝘰𝘰 𝘴𝘯𝘰𝘸 𝘧𝘢𝘭𝘭𝘴 𝘰𝘯 𝘪𝘵;
-<p align="center" dir="auto">
-𝘧𝘰𝘳 𝘵𝘩𝘦 𝘵𝘢𝘪𝘯𝘵𝘦𝘥 𝘴𝘰𝘳𝘳𝘰𝘸,
-<p align="center" dir="auto">
-𝘵𝘰𝘥𝘢𝘺 𝘵𝘰𝘰 𝘸𝘪𝘯𝘥 𝘣𝘭𝘰𝘸𝘴 𝘰𝘯 𝘪𝘵.
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-
-<p align="center" dir="auto">
-𝘧𝘰𝘳 𝘵𝘩𝘦 𝘵𝘢𝘪𝘯𝘵𝘦𝘥 𝘴𝘰𝘳𝘳𝘰𝘸,
-<p align="center" dir="auto">
-𝘪𝘵'𝘴 𝘭𝘪𝘬𝘦, 𝘴𝘢𝘺, 𝘢 𝘧𝘰𝘹'𝘴 𝘧𝘶𝘳;
-<p align="center" dir="auto">
-𝘧𝘰𝘳 𝘵𝘩𝘦 𝘵𝘢𝘪𝘯𝘵𝘦𝘥 𝘴𝘰𝘳𝘳𝘰𝘸,
-<p align="center" dir="auto">
-𝘤𝘰𝘷𝘦𝘳𝘦𝘥 𝘸𝘪𝘵𝘩 𝘴𝘯𝘰𝘸, 𝘤𝘶𝘳𝘭𝘴 𝘶𝘱.
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 <p align="center" dir="auto">
 𝘧𝘰𝘳 𝘵𝘩𝘦 𝘵𝘢𝘪𝘯𝘵𝘦𝘥 𝘴𝘰𝘳𝘳𝘰𝘸,
@@ -92,8 +67,6 @@
 <p align="center" dir="auto">
 ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵
 
-<p align="center" dir="auto">
-im sorry for ruining you.
 
 
 
