@@ -29,7 +29,7 @@
  ‎ ‎ ‎ <p align="center" dir="auto"> 
 𓈒‎ ‎   ‎ ୭ৎ  ‎ ‎ ‎ ‎ any     pronouns⠀ׂㅤ.  ͡꒱
  ‎ ‎ ‎ <p align="center" dir="auto"> 
-𓈒‎  𝘱𝘰𝘦𝘵 ⏤ㅤ    ۪ ୧
+𓈒‎  francis forever ⏤ㅤ    ۪ ୧
  
  ‎ ‎ ‎ ‎ ‎ 
 <p align="center" dir="auto">
