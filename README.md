@@ -29,8 +29,6 @@
  ‎ ‎ ‎ <p align="center" dir="auto"> 
 𓈒‎ ‎   ‎ ୭ৎ  ‎ ‎ ‎ ‎ any     pronouns⠀ׂㅤ.  ͡꒱
  ‎ ‎ ‎ <p align="center" dir="auto"> 
-𓈒‎  francis forever ⏤ㅤ    ۪ ୧
- 
  ‎ ‎ ‎ ‎ ‎ 
 <p align="center" dir="auto">
 ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵
